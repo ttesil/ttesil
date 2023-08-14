@@ -16,4 +16,4 @@ RECOMENDÇÃO: One Piece
 
 
 
-![](https://media.tenor.com/E1E63VCS6cMAAAAC/monkey-d-luffy-one-piece.gif)
+![](https://media.tenor.com/90R7pOnR-q0AAAAd/one-piece-one-piece-time.gif)
